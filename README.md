@@ -652,3 +652,10 @@ Thank you for such great courses!!)
 I'm Vladyslav. I'm from Kyiv  
 ![cat](https://img.buzzfeed.com/buzzfeed-static/static/2014-06/4/15/enhanced/webdr07/anigif_enhanced-17465-1401909433-8.gif)
 
+
+## Merry Christmas, Merry Kottans!
+Let's have fun!
+<br>
+<img height="500px" src="https://scontent.fdnk1-1.fna.fbcdn.net/v/t34.18173-12/21469766_2158038684423188_403656667_n.jpg?_nc_cat=109&_nc_ht=scontent.fdnk1-1.fna&oh=ecac7c0d0032c43af05e5b2d36d836b2&oe=5C369F19" />
+<br>
+
